@@ -1,0 +1,1 @@
+[https://trello.com/b/MFBAoHf8/gamedev-professional-resources](https://trello.com/b/MFBAoHf8/gamedev-professional-resources)
